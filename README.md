@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ar-as-s
 - 👀 I’m interested in Math & Technology
-- 🌱 I’m currently doing Postgraduate degree in Math
+- 🌱 I’m currently doing a Postgraduate degree in Math
 - 💞️ I’m looking to collaborate on any project that falls within my interests
 - 📫 I can be reached at ar.as.s@outlook.com
 
